@@ -1,1 +1,1 @@
-# cjuicewar.github.ao
+# cjuicewar.github.io
